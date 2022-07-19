@@ -1,0 +1,4 @@
+- Hi, I’m Esai Jimenez
+- I’m interested in web3 
+- I’m currently learning Software Engineering principles and various languages
+- How to reach me : ecjimenez26@gmail.com
