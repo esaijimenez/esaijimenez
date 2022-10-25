@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 🎇 About Me:
 🍜I am a senior Software Engineering student<br>with a passion for blockchain technology.<br><br>💣Always wanting to learn something new.
 
 
