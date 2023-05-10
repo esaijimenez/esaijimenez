@@ -1,5 +1,5 @@
 # 🎇 About Me:
-🍜I am a senior Software Engineering student.<br><br>💣Always wanting to learn something new.
+🍜Software Developer at Cruz Associates, Inc.<br><br>💣Always wanting to learn something new.
 
 
 ## 🌐 Socials:
